@@ -1,2 +1,2 @@
 # Cloud-Learning
-Submission Dicoding
+:)
